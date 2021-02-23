@@ -5,4 +5,4 @@
 - i am currently learnig python , english and more.
 
 - How to reach me: saul.acosta16@tectijuana.edu.mx
-🔥You can also find me on instagram as  @Quadsracintj.
+🔥You can also find me on instagram as  @Quadsracingtj.
